@@ -11,7 +11,7 @@ Pour visualiser des fichiers GPX : utilisez une app type « GPX viewer » ou l�
 
 Un peu monotone à l'intérieur des terres mais profiter de la gare cycliste de St-Médard-en-Jalles et de la sortie d'agglo, c'est chouette !
 
-- Canal latéral de la Dordogne depuis Castets en Dorthe 
+- Canal latéral de la Garonne depuis Castets en Dorthe 
 
 à pied ou vélo, mais en vélo c’est plus sympa)
 
