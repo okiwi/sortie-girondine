@@ -45,3 +45,9 @@ En plein air, il y a les jeux de l'île aux enfants (Hourtin)
 il y a pas mal d’activités familiales et pour enfants... hors covid évidemment
 
 - Bourg (pas très loin de saint andré de cubzac) 
+
+- [Bois des sources du Peugue](https://www.pessac.fr/annuaire-de-la-ville-644/bois-des-sources-du-peugue-355.html)
+
+  Un étang et un centre équestre au milieu d'une forêt. Praticable en poussette. 
+
+
