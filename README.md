@@ -50,4 +50,8 @@ il y a pas mal d’activités familiales et pour enfants... hors covid évidemme
 
   Un étang et un centre équestre au milieu d'une forêt. Praticable en poussette. 
 
+## Refuges péri-urbains
+- [À découvrir sur leur site : lesrefuges.bordeaux-metropole.fr](https://lesrefuges.bordeaux-metropole.fr/)
 
+## GR métropolitain 
+- [Un GR parcourt la ville et voici son itinéraire sur Google Maps préparé par Bordeaux culturel](https://www.google.com/maps/d/viewer?mid=1D0v1VYfB5882r7GXHfqClX9Uj5c&ll=44.861352487103616%2C-0.5897434013955238&z=11) 
